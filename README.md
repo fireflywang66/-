@@ -2,18 +2,22 @@
 
 1:美区id：baodu9925144147@163.com
    密码：Tb885885
+
 已购：小火*箭（shado*wrocket）、Alook浏览器、Forest专注森林、人类一败涂地、地狱边境。
 
 2:国区id：yusheng5959@163.com
    密码：YYCY@2020zzyyzz
+
 已购：Notability、Goodnotes、Procreate（用的人太多，太容易被锁了，先缓缓，改个密码）
 
 3: 美区id：o16y08wv@icloud.com
     密码：Fb885885
+
 已购：王国保卫战复仇、纪念碑谷2、视频播放器：nPlayer
 
 4:美区id：r303o7w8@icloud.com
    密码：Gs8891885
+
 已购：熊猫吃短信、饥荒
 
 二：免费高速节^点：https://ikuuu.co，注册成功后点击底部一键导入（小火*箭），这网站内也是有教程的。白嫖50g每月，速度还不错（网址不稳定请换浏览器）
